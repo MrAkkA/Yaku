@@ -11,3 +11,5 @@ bonus possible :
 possibilité d'ajouter differentes classes
 platforme qui bouge
 1 ere personne
+
+*;l,knjhbgvfghjklmlkojiuhygftdrsdfgyhujikolmploiuhgyfjkk iop^kjhgfyuiopklm
